@@ -1,0 +1,1 @@
+# QA-Manual-2.0__Mobile-aplication-for-Skybot-potal
